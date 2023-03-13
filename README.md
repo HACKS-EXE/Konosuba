@@ -1,0 +1,2 @@
+# Konosuba
+Abertura
